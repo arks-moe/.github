@@ -1,1 +1,1 @@
-# arks.moe
+# .github
