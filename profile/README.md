@@ -1,1 +1,1 @@
-# arks.moe
+# [arks.moe](https://arks.moe)
